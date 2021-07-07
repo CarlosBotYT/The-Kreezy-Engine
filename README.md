@@ -10,3 +10,5 @@ Tutorials for the engine will be here, currently doing a fnfmoddingplus as of 7-
 Main Channel : https://www.youtube.com/channel/UCzvikbzVm2nRzTYC9N269Nw ONE SUB AWAY FROM 100 AS OF 7-7-21
 
 
+Mod IN PROGRESS, NOT DONE
+TO play the actual game, click here : https://www.newgrounds.com/portal/view/770371
